@@ -1,0 +1,1 @@
+# oam_kimitsu20191027yaehara01
